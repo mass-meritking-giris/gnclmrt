@@ -1,0 +1,2 @@
+# gnclmrt
+MERİTKİNG GÜNCEL GİRİŞ ♦️ 
